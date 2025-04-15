@@ -1,1 +1,1 @@
-THE 4BEER PODCAST SHOW
+4Beer Podcast show
